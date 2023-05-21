@@ -19,8 +19,8 @@ Faça um moodboard (Exemplo de um moodboard que eu fiz: https://create.vista.com
 Sempre uso o canva, acho melhor e dá mais opções
 
 No canva você pode salvar os elementos que gostar e acessar a coleção para ter mais elementos parecidos,
-
 use texturas
+
 ----------------------------------------------------------------------------------------------------------------------------------------
 Alguns canais no youtube:
 
